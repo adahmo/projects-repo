@@ -3,3 +3,4 @@
 # I am trusting God for another breakthorugh
 # I am coming to testify
 # we are the family of God
+# we did something of a sacrifice today 
