@@ -4,3 +4,4 @@
 # Ann, my host was awesome
 # One love to the people
 # i arrived safe this evening
+# i still have this pain and hope to rest today
