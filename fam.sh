@@ -9,3 +9,4 @@
 # The blessing of the Lord add no sorrow or pain. 
 # this is the day the Lord has made#
 # we rejoice and are glad in tndeed!
+# we love our family 
