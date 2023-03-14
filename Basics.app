@@ -1,4 +1,9 @@
+God
+family
 Phone
 Laptop
 Tv
 Tablet
+clothes
+food
+drink
