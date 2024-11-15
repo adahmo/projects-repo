@@ -10,3 +10,4 @@
 # this is the day the Lord has made#
 # we rejoice and are glad in tndeed!
 # we love our family 
+# family first!
